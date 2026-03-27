@@ -1,4 +1,4 @@
-## Meu nome é Gabriel dos Anjos, Criador de Conteúdo e Analista de Negócios!
+## Meu nome é Gabriel dos Anjos, Criador de Conteúdo e Especialista de Negócios!
 
 Connheça os meus projetos realizados e navegue nos conteúdos.
 
